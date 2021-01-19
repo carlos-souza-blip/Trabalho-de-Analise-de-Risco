@@ -1,1 +1,0 @@
-# Trabalho-de-Analise-de-Risco
